@@ -1,2 +1,0 @@
-# Thuc Khuy THPT 
-
